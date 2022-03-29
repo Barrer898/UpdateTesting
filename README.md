@@ -1,2 +1,2 @@
 # UpdateTesting
-Glitch sux
+Work god dammit
